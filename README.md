@@ -1,3 +1,2 @@
 # doggos_23
-first startup page
-Come visit and see what we provide.  supplies for pets and their humans
+Lets move from to Seoul.   Its alot of work, but if you prepare early, it will be fine!
